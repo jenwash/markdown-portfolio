@@ -1,0 +1,1 @@
+I am **fluent** in *three* languages...English, Passion, and *Love*. JK but I can speak English, French, and Japanese. I'm working on ASL, Spanish, and Mandarin. I'm constantly learning **LaTex**, **Python**, and **HTML** and want to start on **Java**.
